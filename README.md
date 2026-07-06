@@ -1,3 +1,3 @@
 # -evlilik-destek-kampanyasi.trendyol.com
 
-#Subdomain Takeover by leronru
+#Subdomain Takeover by leronru hack
